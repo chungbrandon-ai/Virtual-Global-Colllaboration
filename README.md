@@ -5,3 +5,6 @@ I have created a Zoom Meeting and added everyone involved. You should only join 
  
 Meeting ID: 83300371219 
 Password: 123456789 
+
+Culture of the United States: https://www.youtube.com/watch?v=RkO38QiscLw 
+Culture of Pakistan: https://www.youtube.com/watch?v=5rcZEGxUeXI 
